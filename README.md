@@ -4,7 +4,7 @@
 
 ### 效果图
 
-![预览](https://cdn.staticaly.com/gh/mcattx/imgbed@master/demonstration.6q9re7nmkcc0.gif)
+![预览](https://cdn.staticaly.com/gh/mcattx/imgbed@master/ne3jk-omzgm.4vz6ustwwag0.gif)
 
 ### 使用方式
 
